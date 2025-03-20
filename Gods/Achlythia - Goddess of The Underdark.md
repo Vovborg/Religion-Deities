@@ -1,0 +1,1 @@
+The Queen of the Underdark, Achlythia, is the daughter of darkness and a spiderlike dragon. Nox is her mother and Achlythia was condemned to live in the Underdark to be safe from Drox. When he heard his estranged daughter had a spawn he set out to kill it immediately as it surely must be evil.

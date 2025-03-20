@@ -1,0 +1,2 @@
+# Izolyat
+![[IzolyatArt.png]]
