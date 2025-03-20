@@ -1,4 +1,4 @@
-# Titans
+# Titans:
 Air - Kirba
 
 Earth - Sahi
