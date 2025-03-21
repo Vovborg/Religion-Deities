@@ -6,7 +6,7 @@ Light, fire, passion, hope, protection, sacrifice, revenge, vigilance
 # Alignment
 Chaotic Good
 # Name
-Drox, The Sun Dragon, Eldest
+Drox, The Sun Dragon, Eldest, Morninglord
 # Appearance and depiction
 Drox has always stood out among the other [[Arch Gods - The Eight Arms]] because he is the only one which true form is not humanoid. His true form is a majestic dragon with scales made of pure light. He is known to take humanoid form as a perfected version of a dragonborn often with jade scales.
 
